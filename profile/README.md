@@ -8,6 +8,7 @@ This page is overseen by the Creator's two servants as part of the "Creator's Sp
 
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
+- [The Treatment of Alpha Males During The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 - [TAG's Targeting of Alpha Males](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
 - ["24-7", "This", and "Time" Brand Cigarettes Used as Forced Sterilization Tool on Males](https://github.com/nameless-and-blameless/TAG/wiki/Cigarettes)
 - [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly Black congregation, on May 12, 2024, that left 127 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
