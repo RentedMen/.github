@@ -1,4 +1,4 @@
-# **Welcome to BigGuyTAG**
+# **Welcome to RentedMen**
 
 Welcome to RentedMen, an exclusive space for males who are escorts, models, dancers, or known for their above-average penile length who are being identified, targeted, and eliminated in TAG-related acts of violence.
 
